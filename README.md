@@ -1,5 +1,8 @@
-<h1>Hello! : )</h1>
-Im here to see, learn and create.
+<h1>Hey Stinky! >: )</h1>
+you just got hey stinky'd
+HAHAHAHAHAHAHA!!!
+take that L
+u r an idiot LOL!
 
 <!---
 superlemmy217/superlemmy217 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
